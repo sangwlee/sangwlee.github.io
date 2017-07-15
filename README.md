@@ -1,1 +1,1 @@
-[Link to Portfolio Site](https://sangwlee.com)
+Check out my portfolio! [LINK](https://sangwlee.com)
